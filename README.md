@@ -10,9 +10,13 @@ CÂY ĐỖ TRỌNG
 
 Đỗ trọng có công dụng tăng cường sức mạnh can thận, từ đó giúp bệnh nhân chắc khỏe từ bên trong.
 
-Mua cây giống ĐỖ TRỌNG tại đây -Gía: 60.000đ/ CÂY
+Mua cây giống ĐỖ TRỌNG tại đây 
 
-CÂY SUNG Nhắc đến các loại cây chữa bệnh hiệu quả không thể không nhắc tới cây cây sung, hay còn gọi là Thân Cân Đằng, Khoan Cân Đằng, Tục Cốt Đằng. Cây sung có vị hơi đắng, tính mát, công dụng thanh nhiệt, lợi thấp, thường dùng để chữa bệnh.
+-GIÁ: 60.000đ/ CÂY
+
+CÂY SUNG 
+
+Nhắc đến các loại cây chữa bệnh hiệu quả không thể không nhắc tới cây cây sung, hay còn gọi là Thân Cân Đằng, Khoan Cân Đằng, Tục Cốt Đằng. Cây sung có vị hơi đắng, tính mát, công dụng thanh nhiệt, lợi thấp, thường dùng để chữa bệnh.
 Trong các bài thuốc dân gian, người ta thường dùng lá và thân của cây để chữa bệnh. Thời điểm tốt nhất để thu hái là khi thân cây đã già, sau khi thu hái về làm sạch, thái nhỏ và đem phơi khô.
 
 GIÁ BÁN LẺ: 190.000đ/ CÂY GIỐNG CÂY SUNG
